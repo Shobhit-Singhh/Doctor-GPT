@@ -56,12 +56,6 @@ The AI-Powered Diagnostic System aims to significantly improve the accuracy and 
 
 I’m always eager to connect with professionals, researchers, and innovators in the field of AI and healthcare. Whether you’re interested in discussing AI advancements, healthcare technologies, or potential collaborations, feel free to reach out. Let’s work together to drive the future of healthcare and make a positive impact on patient care!
 
-**Contact Information:**
-
-- **LinkedIn**: [Your LinkedIn Profile](https://www.linkedin.com/in/your-profile)
-- **Email**: [your-email@example.com](mailto:your-email@example.com)
-- **Website/Portfolio**: [Your Website](https://www.your-website.com) (if applicable)
-
 Thank you for visiting my profile!
 
 ---
